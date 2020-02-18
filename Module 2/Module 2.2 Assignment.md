@@ -1,4 +1,4 @@
-Liv R.
+Liv Reinhold.
 
 # Module 2.2 Assignment
 
